@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **AasemTC@gmail.com**
 
-- 📄 Know about my experiences [My CV](https://drive.google.com/file/d/1zcmtbsR6NZg09dLBhYuLhbBMWdjhZ62Q/view?usp=sharing)
+- 📄 Know about my experiences [My CV](https://drive.google.com/file/d/1CiuniE1kmC7g2-LZDETUwoXSNiLeO36G/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
